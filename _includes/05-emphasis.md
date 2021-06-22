@@ -1,0 +1,3 @@
+- I am a good **listener**
+- I am **patient**
+- I have a **_great_ sense of humour**
